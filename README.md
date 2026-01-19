@@ -2,7 +2,7 @@
 - 👀 I’m interested in solving code puzzles and project work
 - 🌱 I’m currently a college student 
 - 📫 How to reach me : just mail me at royshashank760@gmail.com or dm me on my twitter @royshashank7 
-- 😄 Pronouns🦉 
+- 😄 Pronouns he
 - ⚡ Fun fact: love coffee and music 
 
 <!---
